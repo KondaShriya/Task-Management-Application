@@ -189,5 +189,5 @@ Inside backend folder:
 
 ## Contact
 
-- Email: aayush5521186@gmail.com
-- Linkedin: https://www.linkedin.com/in/aayush12/
+- Email: kondashriya8@gmail.com
+- Linkedin: https://www.linkedin.com/in/shriya-konda-56962220a/
